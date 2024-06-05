@@ -1,4 +1,4 @@
-# Antonella Garofalo - Expert in Protection, Social Protection, Migration, Asylum, Refugee Status Determination, International Migration, Vulnerable People, Gender, and Youth
+# Antonella Garofalo - Expert in Protection, Social Protection, Migration, Asylum, Refugee Status Determination, International Migration, Vulnerable People, Gender, Youth, and Children
 
 Welcome to my professional profile! I am Antonella Garofalo, a dedicated and experienced professional specializing in international development, social protection, and migration. With over fifteen years of experience, I have worked extensively on projects and programs aimed at supporting vulnerable populations, including refugees, migrants, women, and children.
 
